@@ -1,1 +1,3 @@
-# 4.Tugas-Praktikum
+1.
+![image](
+2.
